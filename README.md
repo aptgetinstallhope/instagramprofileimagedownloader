@@ -1,2 +1,4 @@
 hello friend !
-follow me on instagram ==> aptgetinstallhope
+instagram ==> aptgetinstallhope
+twitter ==> aptinstallhope
+mail ==> aptgetinstallhope@gmail.com
